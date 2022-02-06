@@ -1,2 +1,2 @@
 - 👋 Hi, I’m IshanJ
-<strong>Pro</strong>grammer
+I am a <strong>Pro</strong>grammer
